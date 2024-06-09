@@ -1,6 +1,6 @@
 ## Hi there, I'm Ankush
 
-### Digital Specialist Engineer at Infosys
+### SWE at Simfoni
 ### Connect with me:
 
 
